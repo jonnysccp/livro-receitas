@@ -22,4 +22,4 @@
 
 2. Coloque para cozinhar passo a passo: as carnes duras, em seguida as carnes moles.
 3. Quando estiver mole coloque o feijão, e retire as carnes.
-4. Finalmente tempere o feijão.
+4. Finalmente tempere o feijão
